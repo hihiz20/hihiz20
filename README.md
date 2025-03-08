@@ -18,4 +18,3 @@ society through science, research, and teaching.
 - Anime ⛩️
 - Programming 👨‍💻
 - Reading 📖
-- Memes 😹
