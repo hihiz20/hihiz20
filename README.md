@@ -11,11 +11,11 @@ technology, research, and teaching.
 - I am a third culture kid and traveled around the world.
 
 
-## Hobbies
+## Hobbies during my free time
 - Piano 🎹
 - Walking 🚶‍♂️
 - Gaming 🎮
 - Biking 🚴🏽‍♂️
 - Anime ⛩️
-- Programming 👨‍💻
+- Programming and AI 👨‍💻
 - Reading 📖
