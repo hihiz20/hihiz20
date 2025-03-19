@@ -9,6 +9,7 @@ technology, research, and teaching.
 - Started teaching early! I volunteer to teach Math, English, and Music at age 14 in my parents ministry.
 - I can speak 5 languages (My parents speaks 6, dang so close!).
 - I am a third culture kid and traveled around the world.
+- I love starfish and moon jellyfish.
 
 
 ## Hobbies during my free time
