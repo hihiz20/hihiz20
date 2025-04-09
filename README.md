@@ -6,6 +6,7 @@ technology, research, and teaching.
 
 🎯 Fun Fact:
 - I grew up around academia (I’m a professor’s child 😉).
+- I grew up near the ocean.
 - Started teaching early! I volunteer to teach Math, English, and Music at age 14 in my parents ministry.
 - I can speak 5 languages (My parents speaks 6, dang so close!).
 - I am a third culture kid and traveled around the world.
