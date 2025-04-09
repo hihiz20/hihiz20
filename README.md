@@ -1,5 +1,6 @@
 ## About Me  
-Hello there! 👋 My name is Hizkia Permata and I am a Computer Science major. I'm an aspiring researcher and educator with a 
+Hello there! 👋 My name is Hizkia Permata and I am a Computer Science major studying in the United States, Virginia. I'm an 
+aspiring researcher and educator with a 
 passion for AI and problem solving to make a difference in society. I believe true innovation comes with working with a field 
 not of my own but collaborating with people in different backgrounds. My work is driven by a passion to serve society through 
 technology, research, and teaching. 
