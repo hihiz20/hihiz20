@@ -3,7 +3,7 @@
 🎯 Fun Fact:
 - I grew up around academia.
 - I grew up near the ocean.
-- I can speak 5 languages.
+- I can speak 3 languages.
 - I am a third culture kid and traveled around the world.
 - I love starfish and moon jellyfish.
 
